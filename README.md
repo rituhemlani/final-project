@@ -6,3 +6,5 @@ its a monday
 i love hongkong
 its the best place
 i m from india
+accelerate coding bootcamp is best
+i am a part time student
